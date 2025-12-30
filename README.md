@@ -1,0 +1,2 @@
+# Orginikart
+WELCOME TO ORGINIKART🙏
